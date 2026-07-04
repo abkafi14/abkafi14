@@ -67,6 +67,8 @@ University of Rajshahi, Bangladesh
 
 **Email:** ab.kafi14ru@gmail.com
 
+**LinkedIn:** https://www.linkedin.com/in/kafi25
+
 **Website:** https://www.nordicmolecular.com
 
 ## Currently Learning
